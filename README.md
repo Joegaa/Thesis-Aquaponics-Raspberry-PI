@@ -1,0 +1,1 @@
+No part of this documentation and project shall be reproduced, stored in a retrieval system, or transmitted in any means, electronic, photocopying, recording or otherwise, without permission from LPU-Batangas.
